@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @BIGODEAMALOIRAS
 - 👀 I’m interested in ... LOIRAS
-- 🌱 I’m currently learning ... 
+- 🌱 I’m currently learning ... Deixar o only mais barato
 - 💞️ I’m looking to collaborate on ... Fazer desconto no only
 - 📫 How to reach me ... onlyfans
 - 😄 Pronouns: ... elu/delu
